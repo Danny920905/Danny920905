@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+早安你好
+我是張鈞煜
+財管大三
+這學期目標是拿到書卷
+謝謝老師辛苦的教導
