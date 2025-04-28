@@ -15,9 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-
-早安你好
 我是張鈞煜
+My name is ChunYu Chang
 財管大三
-這學期目標是拿到書卷
+Department of Finance
 謝謝老師辛苦的教導
